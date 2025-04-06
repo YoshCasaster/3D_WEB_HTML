@@ -6,3 +6,6 @@
 🎵 TikTok: @yosepwd  
 📧 Email: yoshwdd@gmail.com  
 
+🧩 CH Whatsapp : https://www.whatsapp.com/channel/0029VafzAqeFSAszE4uo132D
+Request? : https://saweria.co/YoshCasaster
+Se Iklasnya
